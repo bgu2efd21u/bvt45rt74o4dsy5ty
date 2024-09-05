@@ -1,1 +1,13 @@
-# bvt45rt74o4dsy5ty
+https://rentry.co/2fp6ukka
+https://lifeisfeudal.com/Discussions/question/hws4hehgr
+https://hackmd.io/@orebaba/hRh41hEhjh4fgyt
+https://www.forexagone.com/forum/questions-debutants/bjej8fnf-mve7fndmb-hgdf-150161
+https://www.lifesshortlivefree.com/community/vetted-member-instructions/hjwhf4dehgeg4hdrf/
+https://authors-old.curseforge.com/paste/74328999
+https://www.wowace.com/paste/29d136a2
+https://jsfiddle.net/9noeqxrf/
+https://jsbin.com/poyigiqaxu/edit?html,output
+https://paiza.io/projects/Mn17VcAleh6YLH9ag3howg?
+https://jsitor.com/aBjwx52DkY
+https://wow.curseforge.com/paste/b441dc24
+https://glot.io/snippets/gzn68toom6
